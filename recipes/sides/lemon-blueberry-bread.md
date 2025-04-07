@@ -1,16 +1,16 @@
 # Lemon Blueberry Bread
 
 ## Ingredients
-* 1/3 cup melted butter
-* 3/4 cup granulated sugar
+* ⅓ cup melted butter
+* ¾ cup granulated sugar
 * 2 T lemon zest
 * 2 T lemon juice
 * 1 t vanilla
-* 1/2 cup milk
-* 1 1/2 cup flour
+* ½ cup milk
+* 1 ½ cup flour
 * 1 t baking powder
 * 1 t salt
-* 1 1/2 cup blueberries
+* 1 ½ cup blueberries
 * 2 T flour
 
 ### Glaze ingredients
