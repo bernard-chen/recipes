@@ -13,7 +13,7 @@
 * ½ t / 5 grams baking soda
 
 ## Instructions
-Heat over to 375 degrees. On the stovetop, in a 11 or 12-inch skillet (ovenproof an preferably cast iron), 
+Heat oven to 375 degrees. On the stovetop, in a 11 or 12-inch skillet (ovenproof an preferably cast iron), 
 melt the butter over even heat. Cook, swirling pan to slightly coat sides and bottom, until the foam subsides
 and the butter turns a deep nut brown. (Watch carefully to see that it does not burn.)
 
