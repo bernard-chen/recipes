@@ -8,6 +8,7 @@
 * 1 t vanilla
 * ½ cup milk
 * 1 ½ cup flour
+* 2 large eggs
 * 1 t baking powder
 * 1 t salt
 * 1 ½ cup blueberries
