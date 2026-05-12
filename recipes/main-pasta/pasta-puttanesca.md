@@ -13,7 +13,7 @@
 * 1 lb of pasta
 * salt
 
-## Directions
+## Instructions
 * Start boiling water with salt and when it's ready, add the pasta to cook according to instructions.
 * Cut the slices of bacon into thin strips and cook over medium heat in a pan large enough for the entire dish. Remove bacon from the pan.
 * Cut anchovies into small pieces and add to the pan, along with diced onion. Add salt and start cooking the onions to soften them. Add the garlic after the onions have had time to cook for a bit. Anchovies will largely disappear.
